@@ -2,9 +2,11 @@
 
 ### Social
 [Facebook](https://www.facebook.com/temo.samsonadze)
+
 [Instagram](https://www.instagram.com/temo_samsonadze/)
 
 [Linkidin](https://www.linkedin.com/in/temo-samsonadze-150a541ab/)
+
 [8a.nu](https://www.8a.nu/user/temo-samsonadze/sportclimbing)
 
 ### My brend and site
