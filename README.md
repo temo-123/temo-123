@@ -9,9 +9,10 @@
 
 [8a.nu](https://www.8a.nu/user/temo-samsonadze/sportclimbing)
 
-### My brend and site
+### My site
 [My general site](https://climbing.ge/)
 
+### My brend
 [My brend facebook page](https://www.facebook.com/shop.climbing.ge/)
 
 [My brend instagram](https://www.instagram.com/climbing.ge/)
