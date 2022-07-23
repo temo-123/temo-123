@@ -11,7 +11,9 @@
 [My general site](https://climbing.ge/)
 
 [My brend facebook page](https://www.facebook.com/shop.climbing.ge/)
+
 [My brend instagram](https://www.instagram.com/climbing.ge/)
+
 [My brend site](https://shop.climbing.ge/)
 
 ### Contacts
